@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @thenoobprogrammer101
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning the lord of rings
+- 🧐 If you have any question ask to me
